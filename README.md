@@ -1,0 +1,2 @@
+# canoni
+idrpoker bandarq
